@@ -1,4 +1,10 @@
 EXPERIENCE 
+
+First Day at GNDEC
+
+I was very excited for first day at college. My day begin with blessings of God at college Gurudwara sahib itself. There was great atmosphere. Afterwards refreshment is organised for us by our college. Then we head towards the college auditorium for the beginning of Student Induction Programme 2024.
+Many of our faculty members along with alumni of this college delivered their worthy lectures about what path we should follow. They motivate us and tell us to explore as much as possible in this 4 years of college life.
+
 SECOND DAY OF MY COLLEGE
 
 On second day there was two classes of mine according to schedule. Ist class was "Peer Interaction About College".Our two seniors from 2nd and 4th year was there to interact with us. They tell us about the college website. They tell us about different section at college website. They also tell us about exam pattern. And this was all about today. 
